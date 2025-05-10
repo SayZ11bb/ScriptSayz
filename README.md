@@ -1,2 +1,0 @@
-# ScriptSayz
-RS RS RS
